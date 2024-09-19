@@ -1,0 +1,1 @@
+# datora_sastavdalas
